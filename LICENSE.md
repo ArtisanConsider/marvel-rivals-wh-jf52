@@ -1,4 +1,4 @@
-
+Experience marvel rivals aim assist like never before with updated Aim Assist for marvel rivals aim assist - auto-counter attacks and enemy position predictor, the #1 aim assist.
 
 
 
